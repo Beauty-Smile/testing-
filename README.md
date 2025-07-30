@@ -16,3 +16,4 @@ fandom : dandyworld,forsaken,osc,dream game, total drama,𝙤𝙝𝙨𝙝𝙘
  feel free to int! 
 
  [come around gtc,docks, mostly dandy world rp ]
+![Screenshot_2025-07-30-14-14-49-08.jpg](https://github.com/user-attachments/assets/db735f92-56d6-4f2f-8d61-133518dcf6da)
