@@ -18,6 +18,7 @@ fandom : dandyworld,forsaken,osc,dream game, total drama,𝙤𝙝𝙨𝙝𝙘
  [come around gtc,docks, mostly dandy world rp ]
 
  ok byeee
- https://media.tenor.com/MUcGEO6HHdUAAAAM/folly-regretevator.gif
+ 
 
  
+![1753877469394.gif](https://github.com/user-attachments/assets/317ace56-e233-4dbe-b331-7cfc801cb26b)
